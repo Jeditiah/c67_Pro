@@ -1,0 +1,1 @@
+I like dog. The name of my dog is Tom. Tom likes to play with me. Tom likes to eat meat.Tom does not like cat.
